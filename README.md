@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **Whatsapp Bots**
 
-- 📫 How to reach me **legendarmy.web@gmail.com**
+- 📫 How to reach me **support@nimeshofficial.xyz**
 
 - ⚡ Fun fact **I Think I Am Funny😂**
 
